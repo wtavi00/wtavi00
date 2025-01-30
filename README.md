@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @wtavi00
+- 👋 Hi, I’m Avijit Tarafder
 - 🌱 I’m currently learning.
 - 😄 Pronouns:he/his
 - ⚡ Fun fact: Why did ChatGPT break up with the calculator?  Because it felt used for its functions and never appreciated for its personality! 🤖💔😂
